@@ -38,7 +38,8 @@
   - The reason we struggle with insecurity is because we compare our behind-the-scenes with everyone else's highlight reel. <br> ![](https://i.pinimg.com/originals/46/45/c3/4645c3caec17c4bdb22a4bad231fd16d.jpg)
 - Mark Cuban
   - Work like there is someone working 24 hours a day to take it all away from you! <br> ![](https://successlive.com/wp-content/uploads/mark-cuban-success-quotes131-758x426.png)
-
+- Albert Einstein
+  - Everybody is a genius, but if you judge a fish by it's ability to climb a tree, it will live it's whole life believing it is stupid.<br> ![](https://4.bp.blogspot.com/-h916Ejwe-eY/Uoc4Qnz9VwI/AAAAAAAAOGA/70T77sjZh28/s1600/inspirational+quotes+of+famous+people+(4).jpg)
 
 ## Songs
 
